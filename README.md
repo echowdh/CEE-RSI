@@ -4,3 +4,10 @@
 - Place: Tsinghua University
 - Students: Grade 1 or 2 high school students in China
 - Director: Prof. Benjamin Koo
+- 拿到诺贝尔奖金、菲尔兹将近的学生名字，做宣传使用
+- 劝说RSI做colledge night
+- 尽快拿到学生Counselor的名字，profile和testimonial，做宣传使用
+- 准备所有上述材料，做一版邮件的标准模板，备用
+- 从清华角度做一版网站，内容同步于普顿教育的网站
+- 截至3月1日的情况如上，需要在三月第一周完成上述内容
+- 4月3日-5日Joann访华
